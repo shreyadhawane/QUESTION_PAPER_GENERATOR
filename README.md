@@ -7,3 +7,8 @@
 ![Screenshot 2025-07-08 123631](https://github.com/user-attachments/assets/8aa1d198-d96f-49ee-9811-419e0cb1a30c)
 
 (https://github.com/user-attachments/files/21116402/8ff27f4d-4e4d-42bc-8340-14fb9171c269.pdf)
+
+
+
+https://github.com/user-attachments/assets/3732054e-5912-4230-bab2-3097298041c7
+
